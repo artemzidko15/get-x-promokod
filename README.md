@@ -3,7 +3,7 @@
 Он даст тебе плюс 300 рублей к первому депозиту, что поможет увеличить банкролл без лишних затрат. 
 Бонус начисляется автоматически, и ты можешь использовать его на любые игры в казино.
 ## Get X промокод: GOVIP
-## [ДОСТУР В КАЗИНО GET X CASINO](https://linkcasino.ru/getx)
+## [ДОСТУП В КАЗИНО GET X CASINO](https://linkcasino.ru/getx)
 
 ![гет икс промокоды](https://github.com/user-attachments/assets/c27d4080-49c0-4a84-accd-3a6fd8b6bfb2)
 
